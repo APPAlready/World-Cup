@@ -9,6 +9,11 @@
 +电话：+852 51653942
 +邮箱：xl51040782@sina.com
 +
+
+
+
+
+
 +2018 World Cup - Shoot Game
 +The most anticipated sports event of 2018 is not the Winter Olympics but the World Cup
 +Whenever anyone doubts the dominance of football in this sport, the World Cup will always prove that they are wrong with a strong appeal. This year's World Cup we can not see the Netherlands, Italy, Chile and other strong figure, but it may be today's football Messi and C Luo "peerless" era of the last World Cup. Two have become legendary football Wizards will have what kind of performance? Can Mei King be crowned? Look at the World Cup, there will never be no reason!
